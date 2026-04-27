@@ -1,1 +1,1 @@
-# PsyStudy7
+# PsyStudy
